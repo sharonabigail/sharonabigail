@@ -1,4 +1,4 @@
-![DSC00739](https://github.com/user-attachments/assets/7305de42-cb4c-4d90-a63c-8ef2fed10d4a)# Hello, I'm Sharon - aka [sharonabigail]👋
+# Hello, I'm Sharon - aka [sharonabigail]👋
 ## About me:
 - 🔭 I’m currently a student at Universitas Prima Indonesia
 - 🌱 I’m currently learning Graphic Design
