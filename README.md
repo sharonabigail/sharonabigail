@@ -16,10 +16,9 @@
    - Capturing Images [Portfolio 1 0](https://github.com/user-attachments/assets/7628bebd-ed26-4097-a5ba-817f9207ede6) [Portfolio 1 1](https://github.com/user-attachments/assets/bbaa1cf0-f3f6-45be-8022-0c9634f516d6)
    - Managing Equipment, Commucication and Collaboration skills
 #### 2. [Graphic Design]| Branding Project | Medan `July` 2024
-   - Creating Graphic Forms (https://drive.google.com/file/d/12kpvpfU5dlbRKc1KCEQkNWXo9LqPmK_j/view?usp=drive_link)
-   - Designing Layouts
+   - Creating Graphic Forms (file:///C:/Users/ASUS/Downloads/SOUVER%20BRANDING.pdf)
    - Creativity
----
+   - Designing Layouts
 
 ### Skill:
 
