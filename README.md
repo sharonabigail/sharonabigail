@@ -12,14 +12,13 @@
 #### 2. [SMA F. Tandean](https://sekolah.data.kemdikbud.go.id/index.php/chome/profil/a74cbb25-6c90-41c7-a377-7b6dbf5ae982| MIPA | Tebing Tinggi `2020-2023`
 
 ## My Portfolio:
-#### 1. [UNPRI Photography)[DSC00739](https://github.com/user-attachments/assets/e6cba935-20bf-4eec-9d3b-7d38513fde70)
-| Project Mr&Mrs UNPRI | Medan `Oct'2024
-   - Capturing Images 
+#### 1. [UNPRI Photography)| Project Mr&Mrs UNPRI | Medan `Oct'2024
+   - Capturing Images [Portfolio 1 0](https://github.com/user-attachments/assets/7628bebd-ed26-4097-a5ba-817f9207ede6) [Portfolio 1 1](https://github.com/user-attachments/assets/bbaa1cf0-f3f6-45be-8022-0c9634f516d6)
    - Managing Equipment, Commucication and Collaboration skills
-#### 2. [PLN UP2D Purwokerto](https://portal.pln.co.id) | Student Intern | Purwokerto `2019-2019`
-   - Manage to update CAD of distribution lines using AutoCAD
-   - Manage to recap fault in distribution network
-   - 
+#### 2. [Graphic Design]| Branding Project | Medan `July` 2024
+   - Creating Graphic Forms (https://drive.google.com/file/d/12kpvpfU5dlbRKc1KCEQkNWXo9LqPmK_j/view?usp=drive_link)
+   - Designing Layouts
+   - Creativity
 ---
 
 ### Skill:
