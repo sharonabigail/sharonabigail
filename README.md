@@ -15,7 +15,7 @@
 #### 1. UNPRI Photography | [Project Mr&Mrs UNPRI](https://github.com/user-attachments/assets/7628bebd-ed26-4097-a5ba-817f9207ede6)| Medan `Oct'2024
    - Capturing Images
    - Managing Equipment, Commucication and Collaboration skills
-#### 2. Graphic Design | [Branding Project](https://drive.google.com/file/d/1vNgNcuM65GJzksH8il12doPNP7occ4x4/view?usp=drive_link) | Medan `July` 2024
+#### 2. Graphic Design | [Branding Project](https://drive.google.com/file/d/1vNgNcuM65GJzksH8il12doPNP7occ4x4/view?usp=drive_link) | Medan `July' 2024
    - Creating Graphic Forms 
    - Designing Layouts
    - Creativity
